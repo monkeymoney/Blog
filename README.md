@@ -8,4 +8,4 @@
 31
 31
 23131
-[语22法12312312](https://www.baidu.com/)
+[语22法12](https://www.baidu.com/)
